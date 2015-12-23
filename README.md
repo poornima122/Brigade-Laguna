@@ -1,0 +1,2 @@
+# Brigade-Laguna
+Brigade Laguna expects to give every one of the accommodations and comforts of the city without the anxiety and torment that joins it. The   venture is strategically placed off Hebbal Road behind Manyata Tech Park, such that all the real parts of the city and its numerous historic   points are all around joined. The home owners will be absolutely fulfilled by everything the needs and courtesies offered by the Brigade Group.
